@@ -1,0 +1,1 @@
+# details-all-in-one
